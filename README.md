@@ -5,3 +5,6 @@ I used the different tools to learn how to navigate through my computer and uplo
 
 Q: Why don't scientist trust atoms?
 A: Because they make up everything.
+
+1: I only know 25 letters of the alphabet
+2: I don't know Y
